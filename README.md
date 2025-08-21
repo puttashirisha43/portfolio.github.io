@@ -51,4 +51,4 @@ Bachelor of Technology in AI & DS (2022 - 2026)
 📧 **Email:** shirishaputta258@gmail.com  
 📱 **Phone:** 7989871565  
 Linkedln : www.linkedin.com/in/putta-shirisha-a98787293
-Github:puttashrisha43
+
